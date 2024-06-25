@@ -4,9 +4,9 @@
 
 ## +ดู『หนัง!』 อาณาจักรแห่งพิภพวานร เต็มเรื่อง พากย์ไทย ดูฟรี
 
-**ดูเดี๋ยวนี้▷ [อาณาจักรแห่งพิภพวานร(2024) ออนไลน์ ชมแบบซับไทย.](https://han-rey-neshay.github.io/mumbul/kingdomoftheplanetoftheapes.html)**
+**ดูเดี๋ยวนี้▷ [อาณาจักรแห่งพิภพวานร(2024) ออนไลน์ ชมแบบซับไทย.](https://mills-cas-per.github.io/mumbuls/kingdomoftheplanetoftheapes.html)**
 
-**ดูเดี๋ยวนี้▷ [อาณาจักรแห่งพิภพวานร(2024)ออนไลน์ ดูพร้อมพากย์ไทย](https://han-rey-neshay.github.io/mumbul/kingdomoftheplanetoftheapes.html)**
+**ดูเดี๋ยวนี้▷ [อาณาจักรแห่งพิภพวานร(2024)ออนไลน์ ดูพร้อมพากย์ไทย](https://mills-cas-per.github.io/mumbuls/kingdomoftheplanetoftheapes.html)**
 
 ![# อาณาจักรแห่งพิภพวานร เรื่องเต็ม พร้อมซับไทย](https://han-rey-neshay.github.io/mumbul/kingdomoftheplanetoftheapes.JPG)
 
